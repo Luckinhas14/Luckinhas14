@@ -8,4 +8,4 @@ Eu sou Lucas Lunardi, apaixonado por tecnologia e desenvolvimento de software. A
 - 🤔 Estou em busca de ajuda para o meu desenvolvimento profissional
 - 📫 Como me contatar: lucas.lunarde@gmail.com
 - ⚡ Curiosidade: Adoro tocar guitarra 🎸
--->
+
